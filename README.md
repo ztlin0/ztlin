@@ -1,1 +1,3 @@
-# ztlin
+# HIIIIII!!!
+## i'm a little popato studying ai...
+## i love ♥️ drama, webtoon, movie, music...(everything that is not tech lol)
